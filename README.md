@@ -4,7 +4,7 @@
 
 
 ㅤ
-<img src="https://file.garden/aeWblX8drAn4J6VK/%E2%99%A1%20./OI/gh/tckdb01.png" width="490">
+<img src="https://file.garden/aeWblX8drAn4J6VK/Screenshot_20261007_023916_edit_219873618039249.jpg" width="490">
 ㅤ
 
 ꒰**੭**.ㅤ ㅤ你拥有**我的灵**魂，宝贝。ㅤ<img src="https://file.garden/aeWblX8drAn4J6VK/%E2%99%A1%20./OI/gh/O3.gif" width="30">ㅤㅤOB**SE**SSION
